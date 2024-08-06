@@ -9,3 +9,6 @@ Meu nome é Julio Dantas
 ### Você pode entrar em contato comigo 📫
 
 00001116293316sp@al.educacao.sp.gov.br
+
+
+![](https://media.tenor.com/Wkyc2Lahp44AAAAM/one-piece-op.gif)
